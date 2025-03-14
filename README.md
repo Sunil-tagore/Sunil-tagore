@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning DEEP LEARNING AND COMPUTER VISION
 - 💞️ I’m looking to collaborate on DL,CV PROJECTS 
 - 📫 How to reach me 
-- EMAIL ID:- vsuniltagore858@gmail.com
+- EMAIL ID:- suniltagoreveluturi@gmail.com
 - LINKEDIN:- https://www.linkedin.com/in/sunil-tagore-veluturi-366b8917b/
 - 
 
